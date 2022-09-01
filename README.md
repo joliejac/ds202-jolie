@@ -1,3 +1,3 @@
 # ds202-jolie
-ode to an academic advisor
-github also uses markdown
+seeing everybody again
+living next to a train
